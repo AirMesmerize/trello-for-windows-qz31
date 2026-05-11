@@ -1,4 +1,4 @@
-
+Enhance Trello for Windows with automatic Trello for Windows Integration | task-creation + collaboration, the #1 integration. Includes task-creation and collaboration for a
 
 
 
